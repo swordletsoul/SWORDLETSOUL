@@ -1,4 +1,4 @@
-<p align="center">c+h and int friendly, no need to ask</p>
+<p align="center">c+h and int friendly, no need to ask ^_^</p>
 <p align="center">be my friend NOW #joy</p>
 
 
