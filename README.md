@@ -1,4 +1,4 @@
-<p align="center">flutter with me</p>
+<p align="center">c+h and int friendly, no need to ask</p>
 <p align="center">be my friend #joy</p>
 
 
