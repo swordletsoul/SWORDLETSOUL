@@ -1,3 +1,6 @@
+<p align="center">🇵🇭</p>
+<p align="center">
+
 <p align="center">c+h and int friendly, no need to ask ^_^</p>
 <p align="center">I’m very shy, but feel free to befriend me. i prefer whispers! i’m too anxious to talk in public unless we’re close or in a place with very few people</p>
 
