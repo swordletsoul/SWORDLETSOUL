@@ -10,6 +10,6 @@
 
 ![Image](https://github.com/user-attachments/assets/e21dbbcd-5fc0-4901-bed8-ab2a9c865984)
 
-<p align="center">i loove my buddy collin and more of love my friends u guys r so awesome</p>
+<p align="center">i loove my buddy zuka and more of love my friends u guys r so awesome</p>
 
 
