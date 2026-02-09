@@ -1,7 +1,7 @@
 <p align="center">🇵🇭</p>
 <p align="center">
 
-<p align="center">c+h and int freely unless stated otherwise ^_^</p>
+<p align="center">c+h and int !! unless stated otherwise ^_^</p>
 <p align="center">I’m too shy to int first but i swear that i'm very friendly !! just socially awkward sometimes,, i prefer whispers + i'm anxious to talk in public unless we’re close or in a place with very few people</p>
 
 
