@@ -2,7 +2,7 @@
 <p align="center">
 
 <p align="center">c+h and int !! unless stated otherwise ^_^</p>
-<p align="center">i may be socially awkward and too shy to int first but i swear that i'm very friendly !! i prefer whispers ok? ok</p>
+<p align="center">i may be socially awkward and too shy to int first but i swear that i'm very friendly !! i prefer whispers when it comes to befriending people, ok? ok</p>
 
 <p align="center">i shame people who try to argue or cause any drama in this pixel pony game haha idgaf</p>
 
