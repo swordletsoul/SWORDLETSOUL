@@ -2,9 +2,9 @@
 <p align="center">
 
 <p align="center">c+h and int !! unless stated otherwise ^_^</p>
-<p align="center">I’m too shy to int first but i swear that i'm very friendly !! just socially awkward sometimes,, i prefer whispers ok? ok</p>
+<p align="center">i may be socially awkward and too shy to int first but i swear that i'm very friendly !! i prefer whispers ok? ok</p>
 
-<p align="center">i lowk make fun of people who tryna argue or cause any dramas in this pony game haha mb</p>
+<p align="center">i shame people who try to argue or cause any drama in this pony game haha idgaf</p>
 
 
 <p align="center">people below 17 iwec or dni at all if i'm in the 18+ server</p>
